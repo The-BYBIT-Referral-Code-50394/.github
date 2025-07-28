@@ -6,7 +6,7 @@ Let’s be real — crypto trading can feel a little overwhelming at first. So m
 
 But what if we told you there’s a way to start trading with free bonuses, lower fees, and exclusive rewards — just by typing in a simple code?
 
-Say hello to your new best friend: BYBIT referral code "**50394**" 🥂
+Say hello to your new best friend: BYBIT referral code "**50394**" 🥂.
 
 ===>> Visit Site: https://partner.bybit.com/b/50394
 
